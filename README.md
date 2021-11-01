@@ -1,0 +1,2 @@
+# Vyser
+ruki iz jopi
